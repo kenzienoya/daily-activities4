@@ -1,0 +1,9 @@
+Anda bangun tidur pada pukul 5:38 pagi dan kemudian tertidur kembali sebentar. Anda dibangunkan oleh ayah Anda dan segera mandi, menyiram rambut dengan sampo dan sabun. Setelah mandi, Anda meminta handuk dan kakak Anda membantu memberikannya. Setelah itu, Anda mengenakan pakaian rumah dan mengambil tas untuk pergi ke mobil. Anda makan di dalam mobil dan ketika tiba di rumah Yohan, Anda masuk melalui garasi karena takut akan anjing yang ganas. Di dalam rumah, Anda segera ganti pakaian sekolah dan menyiapkan pakaian olahraga dalam tas.
+
+Ketika sampai di sekolah, Anda langsung masuk ke kelas dan memulai tugas sebagai pembawa bendera saat upacara. Setelah upacara, Anda pergi ke kelas dan menunggu sebelum berbaris ke gereja untuk menaiki bus. Kepala sekolah, Mister Arnold, menjadi sopir bus. Anda pergi ke BMKG (Badan Meteorologi, Klimatologi, dan Geofisika) dan belajar tentang musim di dalam ruang rapat.
+
+Setelahnya, Anda pergi ke taman yang hijau dan berbentuk seperti manusia, di mana Anda bertanya-tanya tentang benda-benda di sekitarnya. Kemudian, Anda makan siang yang enak dengan ayam, nasi, sambal, dan lainnya, sebelum kembali ke sekolah dengan bus.
+
+Di sekolah, Anda bertugas piket dan kemudian bermain sebelum pulang. Setelah pulang, Anda mandi, mengenakan pakaian tidur, dan beristirahat. Anda bangun dan meminta izin untuk minum milo sebelum mengetik untuk Mas Agung. Setelahnya, Anda ke kamar Mas Agung dan kemudian pergi ke toilet. Setelah kembali, ibu Anda memanggil Anda pulang.
+
+Anda kembali ke rumah dan mencuci kaki, membuka pakaian, mencuci tangan, dan lengan. Anda bermain dengan balon biru dan meminta izin untuk bermain iPad. Anda bermain berbagai game di iPad dan ketika baterainya habis, Anda menunggu waktu pengisian. Setelahnya, Anda bermain lagi dengan balon dan menonton TV sebelum disuruh tidur, meskipun Anda kesulitan tidur.
